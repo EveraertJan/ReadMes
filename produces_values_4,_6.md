@@ -1,3 +1,6 @@
+# **disclaimer: I did not write this piece of art. It's here as an example for all upcomming newbies. the greens. to serve as a Godlike purpose of life. ** 
+
+
 Bacon.js
 ========
 
